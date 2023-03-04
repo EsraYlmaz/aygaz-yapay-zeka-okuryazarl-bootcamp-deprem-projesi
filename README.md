@@ -1,0 +1,1 @@
+# aygaz-yapay-zeka-okuryazarl-bootcamp-deprem-projesi
